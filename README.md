@@ -1,2 +1,0 @@
-# keropiheroGRP4EXP.github.io
-STROOP TASK EXPERIMENTAL GROUP
